@@ -8,4 +8,4 @@ mans doesnt actually obf his client
 
 he uses pastbin auth and extorts kids for money while he claims to be making hundreds of thousands of dollars ratting :cap:
 
-
+enjoy
